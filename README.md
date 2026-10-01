@@ -1,7 +1,8 @@
+<p align="center"> 
+<img width="1820" height="650" alt="tcm" src="https://github.com/user-attachments/assets/70239bf0-f4ca-47da-b0d9-e4629da12d08" />
 
 
 
-  <p align="center"><img width="600" height="400" alt="Untitled915_20260914211902" src="https://github.com/user-attachments/assets/425741a4-054f-4ef0-8e1a-a15ddbe126d6" />
 
 
  <p align="center">
@@ -11,5 +12,6 @@
   <p align="center">i lav my friends⠀⠀
    ⠀
 <p align="center"> 
-<img width="540" height="49" alt="IMG_2806" src="https://github.com/user-attachments/assets/c0079624-4674-4acd-9be7-b60231a5ae00" />
+
+
 
