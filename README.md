@@ -1,17 +1,9 @@
 
+ <p align="center"><img width="640" height="778" alt="IMG_3046" src="https://github.com/user-attachments/assets/550f6a99-32ae-482a-bbee-d2f16b9351c7" />
 
-
-
-
-
- <p align="center">
-   ˳⠀⠀⠀catty⠀ノ⠀⠀zozo .⠀ ᛝ
-<p align="center">
-⠀W2I.⠀⠀⠀　⠀𓏼⠀socialy akward, iwc/iwec.　𓈒 
-  <p align="center">i lav my friends⠀⠀
    ⠀
-<p align="center"> 
-<img width="1220" height="450" alt="tcm" src="https://github.com/user-attachments/assets/70239bf0-f4ca-47da-b0d9-e4629da12d08" />
+
+
 
 
 
